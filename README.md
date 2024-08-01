@@ -1,7 +1,6 @@
 ## oiii 😸
 
 meu nome é Vitória Souza
-
 - Estou estudando no mitsusada
 - cursando o último ano do ensino médio (graças a deus)
 - Utilizo esse espaço para criar projetos
@@ -9,4 +8,5 @@ meu nome é Vitória Souza
 ### voce entrar em contato comigo 
 @vitoria_snas
 vitoriasouzanas@gmail.com
-  
+![](link)
+https://media.tenor.com/aPgTU-Z9j1MAAAAM/funny-dogs-cute.gif
