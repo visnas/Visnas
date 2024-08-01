@@ -8,5 +8,5 @@ meu nome é Vitória Souza
 ### voce entrar em contato comigo 
 @vitoria_snas
 vitoriasouzanas@gmail.com
-![](link)
-https://media.tenor.com/aPgTU-Z9j1MAAAAM/funny-dogs-cute.gif
+![](https://media.tenor.com/aPgTU-Z9j1MAAAAM/funny-dogs-cute.gif))
+
